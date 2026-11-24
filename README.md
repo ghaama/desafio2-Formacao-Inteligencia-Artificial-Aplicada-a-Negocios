@@ -1,0 +1,1 @@
+# desafio2-Formacao-Inteligencia-Artificial-Aplicada-a-Negocios
